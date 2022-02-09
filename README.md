@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pauline
+- 👀 I’m interested in learning all things new
+- 🌱 I’m currently learning project management applied to the humanitarian field
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me ...
